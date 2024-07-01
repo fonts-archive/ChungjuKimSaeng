@@ -1,6 +1,6 @@
 # 충주김생체
 
-[배포처 바로가기](https://event.chosun.com/100/100font.html)
+[배포처 바로가기](https://www.chungju.go.kr/www/contents.do?key=3765)
 
 &nbsp;
 
